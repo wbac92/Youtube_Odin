@@ -1,0 +1,1 @@
+We're going into this knowing next to nothing. Day 1: July 1st 2020.
